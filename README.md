@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @packjoulter
+- 👀 I’m interested in Software development
+- 🌱 I’m currently learning Computer Sienece
+- 💞️ I’m looking to collaborate on any projects
+- 📫 How to reach me Jackpoulter4@gmail.com
+- ⚡ Fun fact: Tau Empire aren't as bad as they are made out to be.
