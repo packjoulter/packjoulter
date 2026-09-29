@@ -1,6 +1,6 @@
 - I’m @packjoulter
 - I’m interested in Backend Software development/Quantum Computing
-- I’m currently studing Computer Science at UNE
+- I’m currently studding Computer Science at UNE - expected graduation 2026
 - I’m looking to collaborate on any projects
 - Reach me Jackpoulter4@gmail.com
-- Fun fact: Tau Empire aren't as bad as they are made out to be.
+- Green is the best colour in magic the gathering
